@@ -1,2 +1,0 @@
-# coracao
-trabalho escolar
